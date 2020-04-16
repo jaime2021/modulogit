@@ -1,0 +1,12 @@
+dhdhdhdhhd
+tututuut
+hhjhjjhh
+kljjlljlj
+uououououo
+gghghghg
+qtqttqtqt
+agaggagga
+zvzvvz
+uuiiuiiu
+hkhkhkhk
+rurruruur
